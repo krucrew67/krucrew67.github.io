@@ -1,5 +1,5 @@
 ---
-layout: Always read the first post 
+layout: post 
 title: "7 Modules, Too Many Questions, Welcome to KruCrew67"
 ---
 **The Goal**
