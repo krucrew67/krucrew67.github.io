@@ -8,7 +8,7 @@ This is a community-driven space for professionals within the educational sector
 
 **How We Chose the Name**
 
-The name Kru Crew 67 brings together Thai teaching culture, a sense of community, and a playful reference to the popular “67” meme. In Thailand, “Kru” (ครู) means teacher, while “Crew” represents a group of educators supporting one another through shared experiences and challenges. The number “67” connects both to the familiar classroom meme and to Modules 6 and 7, the final modules of the course. Much like the meme’s up-and-down hand movement, the licensing journey can feel unpredictable, with changing requirements and sometimes conflicting advice along the way. Together, Kru Crew 67 represents a community of professionals helping one another navigate these uncertainties with greater clarity, confidence, and a little humour.
+The name Kru Crew 67 brings together Thai teaching culture, a sense of community, and a playful reference to the popular “67” meme. In Thailand, “Kru” (ครู) means teacher, while “Crew” represents a group of professionals supporting one another through shared experiences and challenges. The number “67” connects both to the familiar classroom meme and to Modules 6 and 7, the final modules of the course. Much like the meme’s up-and-down hand movement, the licensing journey can feel unpredictable, with changing requirements and sometimes conflicting advice along the way. Together, Kru Crew 67 represents a community of professionals helping one another navigate these uncertainties with greater clarity, confidence, and a little humour.
 
 **The Problem We Currently See**
 
