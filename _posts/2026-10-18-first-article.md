@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "7 Modules, Too Many Questions, Welcome to KruCrew67"
+title: "Why this was created"
 ---
 
 Paste your entire 500-word article here.
