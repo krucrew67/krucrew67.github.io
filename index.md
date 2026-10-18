@@ -1,8 +1,5 @@
 ---
 layout: home
-title: Welcome to My Blog
+title: By Educators for Educators 
 ---
-
-Hello! Welcome to my personal blog.
-
-Here I share my thoughts, stories, and experiences.
+We share our thoughts, stories, and experiences.
