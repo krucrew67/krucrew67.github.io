@@ -1,6 +1,6 @@
 ---
 layout: post 
-title: "7 Modules, Too Many Questions, Welcome to KruCrew67"
+title: "First Post: Welcome to KruCrew67"
 ---
 **The Goal**
 
