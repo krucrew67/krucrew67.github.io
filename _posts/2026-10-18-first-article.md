@@ -4,7 +4,7 @@ title: "First Post: Welcome to KruCrew67"
 ---
 **The Goal**
 
-KruCrew67 is a community-driven space dedicated to helping education professionals navigate the 7 Modules and teacher licensing requirements with greater clarity and confidence. We welcome educators at every stage of their careers, from newcomers entering the profession to experienced teachers pursuing their professional qualifications. Our goal is to create a supportive network where members can connect, exchange knowledge, and learn from one another. 
+KruCrew67 is a community-driven space dedicated to helping education professionals navigate the 7 Modules and teacher licensing requirements with greater clarity and confidence. We welcome educators at every stage of their careers, from newcomers entering the profession to experienced teachers pursuing their professional qualifications. Our goal is to create a supportive network where members can connect and learn from one another. 
 
 **How We Chose the Name**
 
