@@ -12,11 +12,11 @@ The name KruCrew67 combines Thai teaching culture, a spirit of teamwork, and a p
 
 **The Problem We Currently See**
 
-Navigating the teacher licensing process can be challenging when information is inconsistent, requirements change, or advice is interpreted differently. Although guidance is available online, it often lacks the practical detail needed to address real situations and specific concerns. Having completed all 7 Modules and obtained our P-Licenses, we have experienced these difficulties firsthand and recognise the need for more reliable, accessible information.
+Navigating the teacher licensing process can be challenging when information is inconsistent, requirements change, or advice is interpreted differently. Although guidance is available online, it often lacks the practical detail needed to address real situations and specific concerns. Having completed all 7 Modules and obtained our P-Licenses, we have experienced these difficulties firsthand and recognise the need for more reliable information.
 
 **The Solution We Aim to Provide**
 
-Through KruCrew67, we aim to bridge these information gaps by offering straightforward explanations, firsthand experiences, and relevant updates that educators can put into practice. Our members include professionals who have successfully earned their P-Licenses, as well as those who have undertaken the B-License examination. By drawing on this collective experience, we hope to help others make informed decisions, avoid unnecessary setbacks, and spend less time worrying about licensing so they can focus on what matters most: teaching.
+Through KruCrew67, we aim to bridge these information gaps by offering firsthand experiences that educators can put into practice. Our members include professionals who have successfully earned their P-Licenses, as well as those who have undertaken the B-License examination. By drawing on this collective experience, we hope to help others make informed decisions, avoid unnecessary setbacks, and spend less time worrying about licensing so they can focus on what matters most: teaching.
 
 
 
