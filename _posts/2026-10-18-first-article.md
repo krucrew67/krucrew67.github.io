@@ -1,6 +1,6 @@
 ---
 layout: post 
-title: "First Post: Welcome to KruCrew67"
+title: "X tips to secure a place on a module"
 ---
 **The Goal**
 
